@@ -1,6 +1,6 @@
-# Harideep K
-##### +91 8886520096
-##### harideep028@gmail.com
+# Lohith Manideep
+##### +91 7893949749
+##### lohithmanideep321@gmail.com
 
 ### Career Objective:
 Seeking a **challenging** *Job* to further enhance my skill set. 
